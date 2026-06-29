@@ -1,4 +1,4 @@
-#  
+#  sol's rng Scripts premium offers the most advanced sol's rng Script, with one-hit kill and no cooldown. Perfect for dominating any match.
 
 
 
